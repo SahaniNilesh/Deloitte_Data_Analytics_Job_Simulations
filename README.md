@@ -1,1 +1,2 @@
 # Deloitte_Data_Analytics_Job_Simulations
+![image](https://github.com/SahaniNilesh/Deloitte_Data_Analytics_Job_Simulations/blob/a58dbbe14e9b1582ee786a882e5785c85b9a9391/io9DzWKe3PTsiS6GG_9PBTqmSxAf6zZTseP_ZERH2bXxXwGj4tLFP_1743599013914_completion_certificate.pdf)
